@@ -1,3 +1,3 @@
 # AAA
 
-EOS, Ethereum and Bitcoin, its changed the world.
+EOS, Ethereum and Bitcoin, They changed the world.
